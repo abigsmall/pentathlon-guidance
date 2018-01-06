@@ -45,7 +45,7 @@ Rosenthal —
 >
 > “\[…\] understanding stems from one of the two forms of knowledge. It stems from that which is called cognitive knowledge, the knowledge born of words and numbers, and other similar devices. **The other form of knowledge, conative knowledge, needs no words or other such devices, for it is the form of knowledge born of direct personal experience.** So it is that conative knowledge is also known as experiential knowledge. Cognitive and experiential knowledge both have their roots in reality, but reality is complex, and complexity is more of a barrier to cognitive knowledge than it is to experiential knowledge, for when we seek cognitive knowledge of a thing, that is, understanding of it, the knowledge we gain of that thing is understanding only of its manifestations, which is not knowledge of the thing itself."
 
-Part of what we’re attempting to do at the Pentathlon — and it seems like we’ve been succeeding so far — is giving you both a conative understanding of what peak productivity feels like, so it’s fully experienced, as well as a supporting cognitive understanding so you that can identify what elements are helping you reach peak productivity, to build them into your life on a permanent basis.
+Part of what we’re attempting to do at the Pentathlon — and it seems like we’ve been succeeding so far — is giving you both a conative understanding of what peak productivity feels like, so it’s fully experienced, as well as a supporting cognitive understanding so that you can identify what elements are helping you reach peak productivity, to build them into your life on a permanent basis.
 
 # So Why A Pentathlon?
 
